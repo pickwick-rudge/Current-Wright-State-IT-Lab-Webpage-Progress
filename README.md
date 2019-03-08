@@ -1,1 +1,1 @@
-# Current-Wright-State-IT-Lab-Webpage-Progress
+# Wright State University Lake Campus IT Department Home Page
